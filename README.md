@@ -1,0 +1,1 @@
+# senator-trend-trading
